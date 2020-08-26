@@ -1,0 +1,2 @@
+# nerdakina
+berta nerj -- kinaligab
